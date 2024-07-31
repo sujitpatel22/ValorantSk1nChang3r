@@ -11,7 +11,7 @@
 
 ## Preview
 
-![изображение](https://github.com/user-attachments/assets/b6449135-f708-4d69-8ae6-cd894fedc85e)
+![изображение](https://github.com/user-attachments/assets/f8919277-6741-4e84-b19e-cd1d101052f8)
 
 
 
